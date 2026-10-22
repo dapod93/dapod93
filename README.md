@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dap0d93
+- 👋 Hi, I’m @dapod93
 <!-- - 👀 I’m interested in reading manga. -->
 
 <!---
